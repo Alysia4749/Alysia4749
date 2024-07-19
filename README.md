@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Alysia4749
+- 👀 I’m interested in cheeeleadimg
+- 🌱 I’m currently learning german 
+- 💞️ I’m looking to collaborate on cheer
+- 📫 How to reach me 
+- 😄 Pronouns: she her hers
+- ⚡ Fun fact: i have a  felxable back
+--->
